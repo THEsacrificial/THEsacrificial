@@ -1,6 +1,8 @@
-LOOK AT MY HUSBAND !!
+LOOK AT MY HUSBANDS !!
 
-![Image](https://github.com/user-attachments/assets/30cbd227-235d-4dfd-b9a0-995c57a9f38f)
+https://github.com/user-attachments/assets/43bebf6f-6d10-4364-ac32-bc599e5f1767
+
+![Image](https://github.com/user-attachments/assets/43bebf6f-6d10-4364-ac32-bc599e5f1767)
 <!--
 **THEsacrificial/THEsacrificial** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 

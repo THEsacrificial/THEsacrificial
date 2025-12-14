@@ -7,5 +7,4 @@ LOOK AT MY HUSBANDS !!
  ---
  
 + Pedho and
-   13- dni!!><
-     <img width="735" height="652" alt="Image" src="https://github.com/user-attachments/assets/fb5d7940-4080-4f7e-80ba-0aa7a24b3962" />
+ 13- dni!!>< <img width="735" height="652" alt="Image" src="https://github.com/user-attachments/assets/fb5d7940-4080-4f7e-80ba-0aa7a24b3962" />

@@ -39,4 +39,4 @@
 - I can be quiet aggressive and rude if you test my patience, so don't play with me unless you're joking.
 - if you DONT LIKE my ships, i suggest you hide me or block. Because I won't deal with fighting over ships at you.
 
-[I ship cool7n7 BUT DO NOT INTERACT IF YOU ALTHOUGH IT'S FORSAKEN. I HAVE WROTE **NOT FORSAKEN** ]
+[I ship cool7n7 BUT DO NOT INTERACT IF YOU ALTHOUGH IT'S FORSAKEN. I HAVE WROTE **'NOT FORSAKEN'** ]

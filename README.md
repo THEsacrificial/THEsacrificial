@@ -40,3 +40,9 @@
 - if you DONT LIKE my ships, i suggest you hide me or block. Because I won't deal with fighting over ships at you.
 
 [I ship cool7n7 BUT DO NOT INTERACT IF YOU ALL THOUGHT IT'S FORSAKEN. I HAVE WROTE **'NOT FORSAKEN'** ]
+
+---
+
+ZONTIK ZONTIK ZONTIK ZONTIK YEYSYESSS I LOVE HIM YESYEYSSS I NEED HIM SO BADD YESYESSYS AAAAAAAAAAAAAAAAA
+
+<img width="555" height="553" alt="Image" src="https://github.com/user-attachments/assets/e3e0f0c9-1b07-45d5-8d7d-4d6e20b7db9f" />

@@ -8,9 +8,9 @@
 
 ---
 
-<center>
-  *SHE GOT AWAY.*
-</center>
+<div align="center">
+  “ SHE GOT...SHE GOT AWAY. ”
+</div>
 
 
 [ IWEC  ! ›‹ ] 

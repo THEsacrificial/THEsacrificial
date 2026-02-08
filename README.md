@@ -7,7 +7,9 @@
 ---
 
 <div align="center">
-  **“SHE GOT...SHE GOT AWAY.”**
+ 
+   **“SHE GOT...SHE GOT AWAY.”**
+
 </div>
 
 
@@ -43,6 +45,7 @@
 - if you DONT LIKE my ships, i suggest you hide me or block. Because I won't deal with fighting over ships at you.
 
 [I ship cool7n7 BUT DO NOT INTERACT IF YOU ALL THOUGHT IT'S FORSAKEN. I HAVE WROTE **'NOT FORSAKEN'** ]
+
 
 ---
 

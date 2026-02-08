@@ -7,7 +7,7 @@
 ---
 
 <div align="center">
-  “ SHE GOT...SHE GOT AWAY. ”
+  **“SHE GOT...SHE GOT AWAY.”**
 </div>
 
 

@@ -6,12 +6,6 @@
    _**“ you will be always mine ”**_
 
 </div>
-
-<div align="center">
-[ IWEC  ! ›‹ ] 
-→  I ɱαιɳʅყ ʂԋιρ ϝɾσȥҽɳԃҽႦƚ αɳԃ ɨƈɦǟռƈɛ ( α Ⴆιƚ ԃσυႦʅҽϝҽԃσɾα )
-</div>
-
 ---
 
 [Temporary]

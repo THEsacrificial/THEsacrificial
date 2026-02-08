@@ -7,22 +7,23 @@
 
 </div>
 
-
+<div align="center">
 [ IWEC  ! ›‹ ] 
 →  I ɱαιɳʅყ ʂԋιρ ϝɾσȥҽɳԃҽႦƚ αɳԃ ɨƈɦǟռƈɛ ( α Ⴆιƚ ԃσυႦʅҽϝҽԃσɾα )
+</div>
 
 ---
 
 [Temporary]
 
+<div align="center">
 🟢: free, allowed to cuds and int with me.
-
 
 🌙: sleeping, watching movies, cuddle still allowed, rarely talk(except with friends).
 
 
 ⛔: drawing, afk, no respond(except friends), but just whisper me still to interact, cuddle is NOT allowed except friends.
-
+</div>
 
 ---
 

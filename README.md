@@ -17,10 +17,8 @@
 ---
 
 
-
-[Temporary]
-
 <div align="center">
+ [ temporary ]
 🟢: free, allowed to cuds and int with me.
 
 🌙: sleeping, watching movies, cuddle still allowed, rarely talk(except with friends).
@@ -41,6 +39,14 @@
 - if you want to vent to me, i say don't. i dont accept vents from random people who aren't in my friendlist or i don't know them SO WELL.
 - mainly ships: cool7n7[NOT FORSAKEN], paycheck, pizzapunch, Johnjane, 1xdoe, doublefedora, daisy1337, moonberry, or even silentlily ['ll respect your ships if you tell me but if it's NOT PROSH1P.]
 - if you DONT LIKE my ships, i suggest you hide me or block. Because I won't deal with fighting over ships with you.
+</div>
+
+---
+
+<div align="center">
+<img width="736" height="736" alt="Image" src="https://github.com/user-attachments/assets/73a68c91-b831-4f02-9646-8892647226b1" />
+
+ moonberry protector !!!
 </div>
 
 <div align="center">
